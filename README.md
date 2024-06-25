@@ -1,1 +1,1 @@
-[JK Tattoo Studio.pdf](https://github.com/gayanfernando/gg/files/15414291/JK.Tattoo.Studio.pdf) 
+[Batch 06.pdf](https://github.com/user-attachments/files/15964966/Batch.06.pdf) 
